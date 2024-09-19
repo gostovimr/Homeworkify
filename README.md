@@ -1,4 +1,4 @@
-# Homeworkify: Unblur Chegg answers for Free inn 2024
+# Homeworkify: Unblur Chegg answers for Free in 2024
 
 # Access Chegg Answers For Free With Homeworkify [By Clicking This Link To Access Chegg Answers For Free Using Homeworkify](https://discord.gg/RwpqunvpAy)
 
